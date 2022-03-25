@@ -1,2 +1,2 @@
 # oo lala oo lala
-khushi ghum nhi de rhi hai
+Ye Meri Expertise Nahi Hai Isiliye I Am Out
