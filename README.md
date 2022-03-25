@@ -1,2 +1,2 @@
 # ilovemymom
-tausif is very smart
+khushi ghum nhi de rhi hai
